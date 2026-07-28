@@ -116,10 +116,19 @@ gave me a note , natalia was talking to josh she stopped and looked at me quite 
 i asked waiter who gave the note , he pointed towards the group of men sitting accros our booth , one of them was holding a cash bundle in his 
 hand just to flex , i can see the disgust on natalia face all her excitment vanish when she saw that men , everybody was equally disgusted 
 except asher , he was looking normal same poker face , who knows what he was thinking , i opened the note and read it , it says 
-"spend the night with me  and i will give you as much money as you want "
+"hey babdy doll , spend the night with me  and i will give you as much money as you want "
 
-chloe asked me what was written in the note , i told her , she was shocked and disgusted , "does he even know who you are 
-, like how the fuck , let me teach that asshole a lesson " chole stand up , i 
+"what's init" chloe asked ,
+
+i passed the note to chloe ,she read it and laughed sarcastically "seriously " , she looked at me ,and asked "what yow wanna do"
+i lean back and took a sip of my cocktail ,"you decide ,otherwise you will be the one yelling on me for making fuss in public"
+"who is he"chloe asked the waiter , who brings the note 
+"he is this club's owner son xavier, i suggest just ignore him ma'am , his dad is very powerful "
+i looked towards him he was squeezing the waiteres butt while looking towards me and making disgusting faces
+
+natalia got angry and started cursing "what the fuck this asshole think of himself ,i think we should call cops and complain about him "
+"and what we will say to cops , that this guy is sending us notes "i laughed sarcastically 
+"no i didn't mean that ", natalia set on her place 
 
 """
 
