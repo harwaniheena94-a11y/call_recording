@@ -116,19 +116,50 @@ gave me a note , natalia was talking to josh she stopped and looked at me quite 
 i asked waiter who gave the note , he pointed towards the group of men sitting accros our booth , one of them was holding a cash bundle in his 
 hand just to flex , i can see the disgust on natalia face all her excitment vanish when she saw that men , everybody was equally disgusted 
 except asher , he was looking normal same poker face , who knows what he was thinking , i opened the note and read it , it says 
-"hey babdy doll , spend the night with me  and i will give you as much money as you want "
+"hey babdy doll , spend the night with me  and i will give you whatever you want just say it "
 
 "what's init" chloe asked ,
 
-i passed the note to chloe ,she read it and laughed sarcastically "seriously " , she looked at me ,and asked "what yow wanna do"
-i lean back and took a sip of my cocktail ,"you decide ,otherwise you will be the one yelling on me for making fuss in public"
-"who is he"chloe asked the waiter , who brings the note 
-"he is this club's owner son xavier, i suggest just ignore him ma'am , his dad is very powerful "
-i looked towards him he was squeezing the waiteres butt while looking towards me and making disgusting faces
+i passed the note to chloe ,she read it and laughed sarcastically "seriously " , she looked at me ,and asked "what are you thinking"
+i lean back and took a sip of my cocktail ,"emm , nothing" i said with mischief grin 
+"anybody has pen ?" i asked 
+"viv , don't do anything stupid , you already exhausted today's quota"
+"Relax sweetheart , i am just giving him reply , it's bad manners to ignore someone , and i know i am a bad person , still look at his poor 
+face , we should not ignore poor person atleast "
 
-natalia got angry and started cursing "what the fuck this asshole think of himself ,i think we should call cops and complain about him "
-"and what we will say to cops , that this guy is sending us notes "i laughed sarcastically 
-"no i didn't mean that ", natalia set on her place 
+asher took out his pen from his shirt pocket and pass it to me , this was the first time since we met , we made eye contact and i notied his eyes
+are of dark blue color like a deep , scary ocean who has so much hidden inside , we looked at each other for much time then its required 
+while taking pen , our fingers bruished each other and i felt jolt of current following through my body 
+i control myself and write down my message in a piece of paper and sent it to that gay 
+
+he seems quite happy while opening the note , as soon as he read the content of it , all color was drained from his face and there was only one 
+expression shock which was soon going to convert into much more ,he just need to look towards me for that
+
+when he did , i slowly took out the knife , which i kept on my right thigh , then i tear up the note he sent me with that knife , slowly 
+slowly , untill his expression changes into fear 
+
+then i cleaned my knife and looked towards him  with dead expression ,with a warning written on my face ("wanna try ?")
+he cleared out his throat and flew out of the club with his friends 
+
+natalia asked me "what you had wrote in that note , why he ran away "
+"he told me i can ask for anything , so i asked  his dick"
+josh choked on his drink and jeremy started laughing , like i had passed some joke , asher , it's hard to read his expression because 
+as you know i am not a Geologist so i can't read rock's expression , but i think his expression quite looks like pride and impressed kinda 
+who cares , "bro , you are awesome and scary too "natalia said while laughing 
+
+"hehe , thanks i will take it as a compliment"
+
+we dance and drank for while , then we went back to our places 
+
+
+Authur (chapter 3)
+
+"count it properly , if even one note is missing , kill him" i ordered my younger brother and started walking towards the door
+"where are you going " roy called out 
+"just to have a look of the club , if the money is not enuogh , then atleast the club should match my taste"
+i went out , sat in the empty booth , as soon as i sat , the waiter arrive and she was looking quite scared 
+
+
 
 """
 
