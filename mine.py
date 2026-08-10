@@ -38,133 +38,801 @@ with open(
 # ==========================
 
 PROMPT = f"""
-chloe looks towards me from driving seat 
-Viv , what's the plan , how we r going to celebrate your  today's victory
+## Chapter Two — A Victory Worth Celebrating
 
-I continued scrolling through my phone and said 
-"by sleeping and eating hehehe"
+Chloe glanced at me from the driver's seat, one hand resting casually on the steering wheel.
 
-she groaned "you sloth , I knew , you had nothing planned that's why i bought vip passes of the new club"
+“Viv, what's the plan? How are we going to celebrate your victory today?”
 
-"please exclude me , i am not going anywhere " i stated
+I continued scrolling through my phone without even looking up.
 
-"ohh sweetheart , i didn't even asked you , we are going that's final "
-"emmm ,fine let's go home to change clothes "
-chloe started laughing sracstically 
-i looked at you weirdly , is she gone mad "what !"
-"ohh what do you think i don't know you , and your tricks , i can smell your intentions babe "
+“By sleeping and eating. Hehehe.”
 
-i wased surprised , how did she knew about my plan "what, did you got electric shock or bloody merry hit you or something "
+Chloe groaned.
 
-"bitch , you never agree to anything this easily ,i am damn sure once we go home , you will lock yourself in room , or possess me with some
- power so that i also stay at home , so  that's why we are not going home , we will buy new clothes and change their only  "
+“You sloth. I knew you had nothing planned. That's why I bought VIP passes for the new club.”
 
-"haaw , i didn't even thought anything like that and i don't want to buy new dress , i am broke "
+“Please exclude me. I am not going anywhere,” I stated firmly.
 
-"bitch , atleast have some shame , if you forgot i am your manager also , i have all your bank info "
+“Oh, sweetheart, I didn't even ask.” She shot me a look through the rearview mirror. “We're going. That's final.”
 
-"ohhh",i lean in my seat disappointedly "how much time will it take "
+I sighed dramatically.
 
-"viv"
+“Fine. Let's go home and change clothes.”
 
-"i hate you bitch "i rolled my eyes
+Chloe suddenly started laughing.
 
-"i hate you too bitch" 
+I looked at her suspiciously.
+
+“Why are you laughing? Have you gone mad?”
+
+“Oh, what do you think? I don't know you and your tricks?” She shook her head. “I can smell your intentions, babe.”
+
+I stared at her in disbelief.
+
+How the hell did she know?
+
+“What? Did you get an electric shock or something? Or did Bloody Mary hit you?”
+
+“Bitch, you never agree to anything this easily.” She pointed a finger at me accusingly. “I'm damn sure that once we go home, you'll lock yourself in your room. Or worse, you'll possess me with some weird power so that I stay home too.”
+
+She paused dramatically.
+
+“So we're not going home. We're buying new clothes and changing there.”
+
+I frowned.
+
+“Haaw. I didn't even think of anything like that. And I don't want to buy a new dress. I'm broke.”
+
+Chloe gave me a look that could have killed me.
+
+“Bitch, at least have some shame. If you've forgotten, I'm your manager too. I have access to all your bank information.”
+
+“Oh.”
+
+I sank deeper into my seat, defeated.
+
+“How much time will it take?”
+
+“Viv.”
+
+“I hate you, bitch.”
+
+“I hate you too, bitch.”
+
+And that was that.
+
+---
+
+I hate to admit it, but I really like shopping.
+
+Actually, “like” might be an understatement.
+
+Two hours later, Chloe and I had somehow managed to buy more than five dresses, several pairs of heels, and enough accessories to make me question every financial decision I'd ever made.
+
+“If I remember correctly,” Chloe said sarcastically, “someone wanted to eat and sleep only. But now she's enjoying shopping.”
+
+I ignored her as I admired the heels in my hands.
+
+“These are the last ones,” I announced. “After this, we'll change and go to the club.”
+
+Chloe raised an eyebrow.
+
+“The last ones?”
+
+“Yes.”
+
+She stared at me.
+
+I stared back.
+
+“Fine,” I corrected myself. “Probably the last ones.”
+
+God, I loved heels.
+
+And how was I supposed to resist when Jimmy Choo and Christian Louboutin had new collections out?
+
+It would have been practically disrespectful not to look.
+
+And looking, of course, had somehow turned into buying.
+
+By the time we finally left the store, I had accepted the fact that my bank account would never emotionally recover from this night.
+
+---
+
+Two hours later, we finally reached the club.
+
+The moment I stepped inside, I stopped.
+
+Okay.
+
+This place was gorgeous.
+
+The interior was everything you'd expect from an exclusive club—luxurious, elegant, and just dramatic enough to make you feel like you'd accidentally walked into the wrong side of society.
+
+I looked down at myself.
+
+I was wearing a silk violet backless dress with a slit on the left side, paired with silver shimmering heels. My blonde hair fell freely over my shoulders, and a diamond necklace and matching earrings completed the look.
+
+And, of course, there was a tiara on my head.
+
+Don't judge me.
+
+I love tiaras.
+
+Honestly, I think people should normalize wearing them.
+
+Why should royalty have all the fun?
+
+Chloe looked equally stunning in a dark cherry-colored dress with a slit on the right side and a pair of black heels.
+
+We made our way to our booth and ordered drinks.
+
+I slowly sipped my cocktail while Chloe enjoyed her wine, both of us taking in the music and the atmosphere.
+
+One thing about Chloe was that she was basically a walking, breathing friendship application.
+
+She knew everyone.
+
+And somehow, everyone she knew knew someone else.
+
+I genuinely had no idea how she remembered all those names.
+
+Especially when three different people could have the exact same name.
+
+I just prayed I would never encounter one of her friends while I was alone because my memory was terrible.
+
+Honestly, even a hamster probably had better social recall than me.
+
+I was lost in my thoughts when Chloe suddenly waved someone over.
+
+A group of people approached our booth.
+
+And there was one thing about me that hadn't changed despite the alcohol, the music, and the glamorous surroundings.
+
+I didn't like people.
+
+Especially strangers.
+
+Especially noisy strangers.
+
+And especially intimidating strangers.
+
+Unfortunately, there was one of those in the group.
+
+He was tall, broad-shouldered, and had a beard with a tattoo disappearing beneath the collar of his black shirt. His sleeves were rolled up, revealing strong forearms, and he wore black pants that somehow made him look even more intimidating.
+
+He looked like a male model who had walked straight out of Vogue.
+
+Except this model was definitely out of my budget.
+
+His face was expressionless.
+
+Completely expressionless.
+
+Like someone had carved it out of stone and forgotten to add emotions.
+
+I immediately decided not to look at him.
+
+Generally, I considered myself a fearless person.
+
+But that man's aura practically screamed **trouble** and **danger**.
+
+And I had enough problems in my life.
+
+I didn't need to voluntarily add another one.
+
+There were two couches in our booth, positioned opposite each other.
+
+Chloe, Natalia, and I occupied one.
+
+On the other sat three men—Natalia's boyfriend, Josh, her brother Jeremy, and Jeremy's friend.
+
+The intimidating male model.
+
+Asher.
+
+Technically, Chloe only knew Natalia. She had heard about Josh, but she'd never met the others before.
+
+So, somehow, we had all ended up sitting together despite practically being strangers.
+
+Judging from the men's expressions, I had a feeling this wasn't exactly what they had planned for their night.
+
+After a few drinks, though, everyone gradually loosened up.
+
+Chloe, Natalia, Josh, and I eventually got up to dance.
+
+Jeremy and Asher stayed on the couch, talking about something.
+
+I had absolutely no idea what.
+
+But judging by their serious expressions, it looked like they were either planning a murder or discussing something illegal.
+
+With them, honestly, I couldn't tell.
+
+After dancing for a while, we returned to the booth for another round of drinks.
+
+That's when the waiter arrived.
+
+He stopped beside me and handed me a folded note.
+
+Natalia, who had been talking to Josh, immediately stopped and looked at me with an expression of pure excitement.
+
+I glanced at the waiter.
+
+“Who gave me this?”
+
+He pointed toward a group sitting across the club.
+
+One of the men was holding a thick bundle of cash in his hand, apparently enjoying the attention it attracted.
+
+I noticed Natalia's excitement disappear the moment she saw him.
+
+Her face twisted with disgust.
+
+Everyone seemed equally unimpressed.
+
+Everyone except Asher.
+
+He simply sat there with the same unreadable expression.
+
+As usual.
+
+I opened the note.
+
+*Hey, baby doll. Spend the night with me and I'll give you whatever you want. Just name it.*
+
+I stared at it.
+
+Chloe leaned toward me.
+
+“What's in it?”
+
+I handed her the note.
+
+She read it and let out a sarcastic laugh.
+
+“Seriously?”
+
+She looked at me.
+
+“What are you thinking?”
+
+I leaned back and took another sip of my cocktail.
+
+“Hmm. Nothing.”
+
+A mischievous grin slowly spread across my face.
+
+“Anybody have a pen?”
+
+Chloe immediately narrowed her eyes.
+
+“Viv, don't do anything stupid. You've already exhausted today's quota.”
+
+“Relax, sweetheart. I'm just giving him a reply.”
+
+I shrugged innocently.
+
+“It's bad manners to ignore someone.”
+
+I paused.
+
+“And I know I'm a bad person, but look at his poor face. We shouldn't ignore poor people, should we?”
+
+Chloe rolled her eyes.
+
+Before she could say anything, a pen appeared in front of me.
+
+I looked up.
+
+Asher.
+
+He had pulled the pen from his shirt pocket and was holding it out toward me.
+
+It was the first time we'd actually made eye contact.
+
+And for some reason, I forgot what I was doing.
+
+His eyes were dark blue.
+
+Deep.
+
+Almost unnervingly so.
+
+Like a dark ocean that hid things beneath its surface.
+
+Things I probably didn't want to know about.
+
+We looked at each other for a second longer than necessary.
+
+Then I reached for the pen.
+
+Our fingers brushed.
+
+A strange jolt ran through me.
+
+Electric.
+
+Unexpected.
+
+I immediately pulled my hand back and focused on the note.
+
+Nope.
+
+Absolutely not.
+
+I wasn't going there.
+
+I quickly wrote my response, folded the paper, and sent it back to the man across the room.
+
+He looked delighted when he received it.
+
+He opened the note eagerly.
+
+Then he read it.
+
+The smile vanished.
+
+The color drained from his face.
+
+Shock flashed across his features.
+
+And then came something else.
+
+Fear.
+
+He slowly looked toward me.
+
+I smiled.
+
+Not warmly.
+
+Not kindly.
+
+I reached beneath the table and pulled out the small knife I'd kept against my thigh.
+
+Without breaking eye contact, I used it to slowly tear his note into pieces.
+
+Piece.
+
+By.
+
+Piece.
+
+His expression changed with every tear.
+
+When I was finished, I calmly folded the knife away, wiped it clean, and looked directly at him.
+
+My expression was completely dead.
+
+The message on my face was simple.
+
+**Wanna try?**
+
+He cleared his throat.
+
+Then he left.
+
+Quickly.
+
+His friends followed him.
+
+I watched them disappear into the crowd.
+
+Silence settled over our booth for approximately three seconds.
+
+Natalia finally broke it.
+
+“What did you write in that note?”
+
+She looked genuinely confused.
+
+“Why did he run away?”
+
+I took another sip of my cocktail.
+
+“He told me I could ask for anything.”
+
+I shrugged.
+
+“So I asked for his dick.”
+
+Josh immediately choked on his drink.
+
+Jeremy burst out laughing.
+
+Even Natalia looked stunned for a second before she started laughing.
+
+Asher remained difficult to read.
+
+Of course.
+
+His face was still practically carved from stone.
+
+But there was something different in his eyes.
+
+Something that almost looked like amusement.
+
+Or maybe pride.
+
+Or maybe he was impressed.
+
+Who knew?
+
+I certainly wasn't qualified to interpret the facial expressions of rocks.
+
+“Bro,” Natalia said between laughs, “you are awesome and scary too.”
+
+I smiled proudly.
+
+“Hehe. Thanks. I'll take that as a compliment.”
+
+We eventually returned to dancing and drinking, letting the music swallow the rest of the night.
+
+For once, I didn't mind being surrounded by people.
+
+Maybe victory wasn't so bad after all.
+
+Especially when it came with new heels, expensive cocktails, and the opportunity to terrify arrogant men.
+
+Not a bad night.
+
+Not bad at all.
+
+
+# Chapter Three
+
+### Arthur
+
+“Count it properly.”
+
+I leaned back against the desk, watching my younger brother go through the stacks of cash.
+
+“If even one note is missing,” I added calmly, “kill him.”
+
+Roy looked up at me.
+
+I didn't wait for his response.
+
+I turned toward the door.
+
+“Where are you going?” he called after me.
+
+I stopped.
+
+“Just going to have a look around the club.”
+
+Roy frowned.
+
+“Since when do you care about clubs?”
+
+“I don't.”
+
+I glanced back at him.
+
+“If the money isn't enough, then at least the club should match my taste.”
+
+His expression told me he didn't believe a word I had said.
+
+He knew me too well.
+
+I walked out before he could ask anything else.
+
+The music became louder as I moved deeper into the club.
+
+I usually never came to this part.
+
+Too many people.
+
+Too much noise.
+
+Too many drunk idiots stumbling around as if they'd forgotten how to walk.
+
+I had no interest in being surrounded by people who had already lost control of themselves.
+
+But tonight, I made an exception.
+
+For her.
+
+I didn't want to admit that.
+
+I didn't even understand it myself.
+
+Ever since I'd seen her, my mind had been working against me.
+
+I had tried to ignore it.
+
+Tried to forget her.
+
+Tried to convince myself that the brief encounter meant nothing.
+
+Yet somehow, my feet had brought me here.
+
+My body had decided where it wanted to go before my mind could stop it.
+
+I scanned the club.
+
+And then I found her.
+
+She was sitting in one of the booths with her friends.
+
+For a moment, everything else disappeared.
+
+She was wearing a black dress with a slit revealing her right thigh. Her blonde hair was loose around her shoulders, and, of course, she was wearing a tiara.
+
+A fucking tiara.
+
+Who wore a tiara to a nightclub?
+
+Apparently, she did.
+
+And somehow, it suited her.
+
+She looked like a princess who had wandered into the wrong kingdom.
+
+*My princess.*
+
+The thought appeared in my head before I could stop it.
+
+I immediately rejected it.
+
+Not mine.
+
+Definitely not mine.
+
+She simply stood out.
+
+Everyone else in the club looked like shadows—drunk, loud, careless.
+
+She looked alive.
+
+Like a butterfly surrounded by a swarm of bees.
+
+There was something about her.
+
+The way she carried herself.
+
+The confidence in her posture.
+
+The look in her eyes.
+
+She knew her worth.
+
+And she didn't need anyone else to confirm it.
+
+I watched her from a distance.
+
+Then a waiter approached their booth.
+
+She handed her something.
+
+A note.
+
+I watched her unfold it.
+
+Her expression changed.
+
+Only for a fraction of a second.
+
+Something dark flashed across her face.
+
+It was gone almost immediately, replaced by that careless expression again.
+
+She asked the waiter something.
+
+The waiter pointed toward a man sitting nearby.
+
+I looked at him.
+
+He was holding a thick bundle of cash in his hand, practically waving it around as if money made him important.
+
+I didn't need to read the note.
+
+I already knew what it said.
+
+Men like him always thought money could buy whatever they wanted.
+
+Including people.
+
+My jaw tightened.
+
+For reasons I couldn't explain, I suddenly wanted to cut off the hand that had written that note.
+
+I didn't understand the anger.
+
+It wasn't rational.
+
+It wasn't even mine to feel.
+
+And yet, I couldn't control it.
+
+I pulled out my phone.
+
+One message.
+
+That was all it took.
+
+*Take care of him.*
+
+I put my phone away.
+
+My attention returned to her.
+
+She took a sip from her drink and said something to her friends.
+
+Then that smile appeared.
+
+A mischievous little grin.
+
+I narrowed my eyes.
+
+She was planning something.
+
+Of course she was.
+
+The man sitting opposite her handed her a pen.
+
+I watched his hand.
+
+Then I watched her fingers close around it.
+
+My gaze hardened.
+
+Of everyone sitting at that table, he was the only person I didn't like.
+
+Asher Lane.
+
+I knew enough about him to know he wasn't harmless.
+
+But the way he was looking at her irritated me far more than it should have.
+
+There was something in his eyes.
+
+Interest.
+
+Curiosity.
+
+Something else.
+
+I didn't like it.
+
+Not one bit.
+
+And when his fingers brushed hers, my hand tightened around the glass in front of me.
+
+I wanted to break something.
+
+Or perhaps break his hand.
+
+How dare he touch her?
+
+I forced myself to look away.
+
+This was ridiculous.
+
+She wasn't mine.
+
+I had no claim over her.
+
+So why did the sight of another man's fingers touching her feel like an insult?
+
+I focused on her again.
+
+She was writing something on the paper.
+
+Then she folded it and handed it to the waiter.
+
+The waiter crossed the room and delivered it to the man.
+
+I watched him open it.
+
+His expression changed immediately.
+
+The color drained from his face.
+
+Whatever she had written had terrified him.
+
+For the first time that night, I almost smiled.
+
+Then she looked directly at him.
+
+Slowly, she reached beneath the table.
+
+And pulled out a knife.
+
+My eyebrows lifted slightly.
+
+Interesting.
+
+She used the blade to tear the note apart.
+
+Slowly.
+
+Deliberately.
+
+Piece by piece.
+
+She never looked away from him.
+
+And when she finished, she gave him a look that could have frozen blood.
+
+Cold.
+
+Empty.
+
+A warning without a single word.
+
+The man left.
+
+Quickly.
+
+I watched him disappear into the crowd.
+
+Then I looked back at her.
+
+She casually returned to her drink as if nothing had happened.
+
+As if she hadn't just terrified a grown man into running away.
+
+A strange feeling settled in my chest.
+
+Amusement.
+
+Interest.
+
+Something dangerously close to admiration.
+
+She was reckless.
+
+Fearless.
+
+And completely unpredictable.
+
+I had met plenty of beautiful women before.
+
+Beauty had never interested me for long.
+
+But she wasn't just beautiful.
+
+There was something underneath it.
+
+Something sharp.
+
+Something dangerous.
+
+Something that made me want to know more.
+
+I leaned back in my seat.
+
+My eyes remained fixed on her.
+
+She had no idea I was watching.
+
+And perhaps that was better.
+
+Because I had no idea what I intended to do either.
+
+One thing, however, was certain.
+
+I wasn't going to forget her that easily.
+
+Not anymore.
 
 
 
-chater 2 
-
-i hate to admit this but i really like shopping , chloe and i bought more than 5 new dresses and heels ,
-"if i remember correctly , someone wants to eat and sleep only , but now she is enjoying shopping " chloe said sarcastically while i was 
-admiring the heels , on which i got my eyes , "this is last one , after than we will change and go to club " i said
- oh my god i love heels ,and how could i even resist myself when  jimmy choe and christian louboutin had their new collection out  
-
-"" 
-
-after 2 hours of shopping , we finally reached the club , and i was amazed by the club's interior , it was so beautiful and luxurious
-i was wearing a silk violet  backless dress with a slit on the left side , and a pair of silver shimmering heels , 
-my blonde hair was open and i was wearing a diamond necklace and earrings and a tiara on my head ,ofcourse i love wearing tiara
-, i think people should normalize wearing tiara , it looks so beautiful and elegant
-, and chloe was wearing a dark cherry dress with a slit on the right side and a pair of black heels
-
-we sat in our booth and ordered our drinks , i was sipping on my cocktail while chloe was enjoying her wine , 
-we were enjoying the music and the vibe of the club ,one thing about chloe , she is a walking , alive friendship application , she
-has a lot of friends and that friends of her has a lot of different friends and this girl know all of them , i just can't understand 
-how she remembers who's friend is who and what's their name , because some have same name too , i just wish 
-i never encounter her any friends whenver i am alone , because i have terrible memory even hamster has better memory than me , 
-while i was lost in my thoughts , chloe invited a group of people in our booth 
-
-and one thing about me , i don't like people , especially strangers , and even more when they are noisy and some of them are scary 
-not some of them actually just one of them , he was a tall guy with a beard and a tattoo on his neck ,he looks like a hot male model 
-who is out of straight vogue magazine , but out of budget ,he was wearing a black shirt with rolled up sleeves and a pair of black pants , even stone might have some expression on their 
- face but this guy's face was like a stone , i didn't dare to look at him 
-
-generally i am quite fearless person , but this men aura is yelling trouble and danger , it better to stay away for the sake of peace in my life , 
-
-there were two couch in the booth , placed opposite to each other , on one couch me , chloe and her friend natalia was sitting on another
-couch there were 3 men , natalia boyfriend josh , and her brother jermey , and jeremy friend , the hot male model asher 
-
-so in short chloe only knows natalia ,and only heard about her boyfriend josh that's it , but now here we all are sitting  together who fucking
-meet each other for the first time , i can say from this mens expression this is not what they had planned for the night ,
-
-after few drinks , everybody got quite loosen up , we dance , (we inclueds me , chloe , natalia and josh) , jermey and asher were 
-sitting on couch and talking about something God knows what , but it was looking like they were planning to kill someone or something illegal
-
-after dancing for a while , we were feeling like quite sober so we went to our booth to drink again , while we were drinking the waiter arrive and
-gave me a note , natalia was talking to josh she stopped and looked at me quite excitedly like i got a diamond ring , 
-i asked waiter who gave the note , he pointed towards the group of men sitting accros our booth , one of them was holding a cash bundle in his 
-hand just to flex , i can see the disgust on natalia face all her excitment vanish when she saw that men , everybody was equally disgusted 
-except asher , he was looking normal same poker face , who knows what he was thinking , i opened the note and read it , it says 
-"hey babdy doll , spend the night with me  and i will give you whatever you want just say it "
-
-"what's init" chloe asked ,
-
-i passed the note to chloe ,she read it and laughed sarcastically "seriously " , she looked at me ,and asked "what are you thinking"
-i lean back and took a sip of my cocktail ,"emm , nothing" i said with mischief grin 
-"anybody has pen ?" i asked 
-"viv , don't do anything stupid , you already exhausted today's quota"
-"Relax sweetheart , i am just giving him reply , it's bad manners to ignore someone , and i know i am a bad person , still look at his poor 
-face , we should not ignore poor person atleast "
-
-asher took out his pen from his shirt pocket and pass it to me , this was the first time since we met , we made eye contact and i notied his eyes
-are of dark blue color like a deep , scary ocean who has so much hidden inside , we looked at each other for much time then its required 
-while taking pen , our fingers bruished each other and i felt jolt of current following through my body 
-i control myself and write down my message in a piece of paper and sent it to that gay 
-
-he seems quite happy while opening the note , as soon as he read the content of it , all color was drained from his face and there was only one 
-expression shock which was soon going to convert into much more ,he just need to look towards me for that
-
-when he did , i slowly took out the knife , which i kept on my right thigh , then i tear up the note he sent me with that knife , slowly 
-slowly , untill his expression changes into fear 
-
-then i cleaned my knife and looked towards him  with dead expression ,with a warning written on my face ("wanna try ?")
-he cleared out his throat and flew out of the club with his friends 
-
-natalia asked me "what you had wrote in that note , why he ran away "
-"he told me i can ask for anything , so i asked  his dick"
-josh choked on his drink and jeremy started laughing , like i had passed some joke , asher , it's hard to read his expression because 
-as you know i am not a Geologist so i can't read rock's expression , but i think his expression quite looks like pride and impressed kinda 
-who cares , "bro , you are awesome and scary too "natalia said while laughing 
-
-"hehe , thanks i will take it as a compliment"
-
-we dance and drank for while , then we went back to our places 
 
 
-Authur (chapter 3)
 
-"count it properly , if even one note is missing , kill him" i ordered my younger brother and started walking towards the door
-"where are you going " roy called out 
-"just to have a look of the club , if the money is not enuogh , then atleast the club should match my taste"
-i went out , sat in the empty booth , as soon as i sat , the waiter arrive and she was looking quite scared 
+
+
 
 
 
 """
 
 # ==========================
-# Generate Report
+# Generate Report 
 # ==========================
 
 response = client.models.generate_content(
@@ -182,7 +850,7 @@ os.makedirs("reports", exist_ok=True)
 
 with open(
     "reports/Donald Victor Williams-1.md",
-    "w",
+    "r"   ,
     encoding="utf-8"
 ) as f:
     f.write(report)
